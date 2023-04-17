@@ -8,10 +8,7 @@ Norte-Sul, Norte-Sul deste Brasil
 Tua estrela, na terra a brilhar
 Ilumina o mar
 
-No atletismo, és um braço
-No remo, és imortal
-No futebol, és um traço
-De união Brasil-Portugal
+Vai vascão
 
 No atletismo, és um braço
 No remo, és imortal
