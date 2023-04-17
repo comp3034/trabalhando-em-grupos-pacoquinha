@@ -34,3 +34,10 @@ No atletismo, és um braço
 No remo, és imortal
 No futebol, és um traço
 De união Brasil-Portugal
+
+Uma vez Flamengo, sempre Flamengo
+Flamengo sempre eu hei de ser
+É o meu maior prazer vê-lo brilhar
+Seja na terra, seja no mar
+Vencer, vencer, vencer
+Uma vez Flamengo, Flamengo até morrer
